@@ -1,5 +1,5 @@
-👋 Hi, I’m @AnNamir2u 
-👀 I’m interested in Photography & Design 
-🌱 I’m currently learning Design 
-💞️ I’m looking to collaborate on translating apps
-📫 Reach me at https://mylink.la/annamir
+👋 Hi, I’m @AnNamir2u<br>
+👀 I’m interested in Photography & Design<br>
+🌱 I’m currently learning Design<br>
+💞️ I’m looking to collaborate on translating apps<br>
+📫 Reach me at https://mylink.la/annamir<br>
